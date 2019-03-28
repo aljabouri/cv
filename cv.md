@@ -14,3 +14,8 @@ English Language B.A. Degree
 Working
 Employee / IT Specialist
 10/2009 – 07/2015
+
+Hobbies
+reading 
+serfing Internet 
+Playing E-Piano
